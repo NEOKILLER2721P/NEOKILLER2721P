@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chayan 
+- 👀 I’m interested in exploring new stuffs 
+- 🌱 I’m currently learning BCA
+- 💞️ I’m looking to collaborate on nothing right now
+- 📫 How to reach me idk
